@@ -1,2 +1,2 @@
 # Senchenya Vlad
-# today 06 september or any else, idk
+# today 07 september or any else, idk
